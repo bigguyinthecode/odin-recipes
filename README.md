@@ -1,0 +1,1 @@
+The current project is to build my first website, as barebones and as shit as it is, its gonna be all mine.
